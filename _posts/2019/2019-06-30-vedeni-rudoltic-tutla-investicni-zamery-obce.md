@@ -27,7 +27,7 @@ http://www.rudoltice.cz/2019
 
 - Datum podpisu smlouvy je 13.12.2018, ve stejném dni, kdy ji Rada obce schválila.
 - Termínem pro zahájení prací je po podpisu této smlouvy dle klimatických podmínek.
-- Termínem ukončení prací je nejpozději do 31.7.2018.(ČL. III. - Čas plnění).
+- Termínem ukončení prací je nejpozději do 31. 7. 2018.(ČL. III. - Čas plnění).
 
 Celý obchodní vztah založený touto smlouvou (ČL. X. - Závěrečná ustanovení) se řídí zákonem č. 513/1991 Sb., obchodní zákoník, v platném znění. Tento zákon byl s účinnosti dne 1. ledna 2014 zrušen.
 
